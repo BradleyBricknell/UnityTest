@@ -1,0 +1,1 @@
+1000 Vietnamese children in rags swarm the stage!
